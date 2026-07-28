@@ -1,4 +1,4 @@
-#"Hi 👋, I'm Bhabika Tamang..."
+"Hi 👋, I'm Bhabika Tamang..."
 
 PROFILE VIEWS:
 📊 DATA ANALYST
