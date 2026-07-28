@@ -58,5 +58,5 @@ Tools used:
 • Power Query
 
 🌐 Connect With Me:
-/in/bhabika-tamang-7b6a49256
+www.linkedin.com/in/bhabika-tamang-7b6a49256
 📧 Email: tamangvawika27@gmail.com
